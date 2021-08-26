@@ -1,3 +1,3 @@
 # Forest-Chorus
-![image](image.jpg)
-#你来辣😄
+![image](poster.JPG)
+# 你来辣😄
